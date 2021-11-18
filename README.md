@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kimbzo
+- 👀 I’m interested in music and gaming
+- 🌱 I Work on beats
+- 💞️ I’m looking to meet new people
+- 📫 How to reach me @kimbzo.vfx on LUM
